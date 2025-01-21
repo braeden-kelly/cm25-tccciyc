@@ -1,0 +1,3 @@
+- https://www.youtube.com/watch?v=eSQHpfaYspw
+- https://discord.com/channels/1127340805741359164/1328022940792524840
+- https://github.com/ardalis
